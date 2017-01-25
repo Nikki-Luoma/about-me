@@ -1,4 +1,1 @@
-Nikki was born and raised in Meadville, Pennsylvaina. She is an only child. When she was little one of her favorite past times was playing on her grandparents Windows 1998 computer.
-As she grew up the technology around her grew up as well. Her favorite hobbies as a child was playing computer games, playing outside and playing softball.
-
- 
+Nikki was born and raised in Meadville, Pennsylvaina. She is an only child. Her hobbies include playing softball, spending time with family, playing games and unfortunately studying. She is currently a student at Allegheny College. She was attracted to this school because of the beautiful campus, rigorous courses and closeness to home. 
